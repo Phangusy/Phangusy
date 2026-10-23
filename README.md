@@ -1,4 +1,5 @@
-## Hi there 👋
+## 呱！我就是要看这个口牙！
+目前还没发什么东西，不过以后大概可能也许会上传的罢！（确信）
 
 <!--
 **Phangusy/Phangusy** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
